@@ -1,0 +1,1 @@
+# Magisterski_FAIS_UJ_Stosowana
